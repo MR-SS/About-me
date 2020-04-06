@@ -1,7 +1,4 @@
 # Mystuff
-Hi guys 
 my name is MR.SS
-I'm web security eng and i want to dreate some program to help other in this job
-
-
+TRY TO BE THE BEST OR GO HOME L00SER
 HAVE FUN :)
